@@ -47,7 +47,7 @@ And I don't hear a thing
 But your name for a drunk lullaby
 
 
-G  D  G  D  G
+D G/B  D  G/B
 
 
 D          G/B
